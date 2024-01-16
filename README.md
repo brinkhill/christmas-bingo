@@ -1,4 +1,4 @@
-_ **School Board Policies** _
+# **School Board Policies**
 
 **SECTION 1:** **SCHOOL ADMINISTRATION**
 
